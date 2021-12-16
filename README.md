@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Legend-Umair
+- 👀 I’m interested in Making Discord Bots And NPM Packages!
+- 🌱 I’m currently learning Csharp
+- 📫 Contect Me On Discord If Any Questions Or Wanted To Contect! (Legend Umair ★#6969)
